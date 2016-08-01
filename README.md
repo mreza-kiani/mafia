@@ -1,1 +1,1 @@
-# Mafia :)
+# Mafia
